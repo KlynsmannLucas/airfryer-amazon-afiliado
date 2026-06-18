@@ -1,0 +1,1 @@
+# airfryer-amazon-afiliado
